@@ -22,6 +22,6 @@ Pretty sure I have ADHD — used to vibe coding while scrolling my phone.
 #### ☆
 
 
-I'm not interested in ordinary humans. if any of you are aliens, people from the future, or people with superpowers, please contact me!
+**I'm not interested in ordinary humans. if any of you are aliens, people from the future, or people with superpowers, please contact me!**
 
 Email: [lingjiuu.paprika@gmail.com](mailto:lingjiuu.paprika@gmail.com)
