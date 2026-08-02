@@ -1,6 +1,6 @@
 # Hello ~
 
-#### lingjiuu
+#### ✧I'm lingjiuu
 
 An ordinary second-year student trying to learn AI Agents and full-stack AI development.
 
